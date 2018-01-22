@@ -1,9 +1,9 @@
 # Страница Марины Настас
-### ~~da best page, но это не точно~~
+### ~~da best page~~, но это не точно
 ![Это моё лицо](https://pp.userapi.com/c840132/v840132627/598c8/kxkSup7-Z14.jpg "Это я")
 
 - #### Любимая цитата:
-> А что такое жизнь, как не цепь вдохновенных безрассудств? Никогда не упускай случая — он представляется не каждый день. (Бернард Шоу, "Пигмалион")
+> A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing. (George Bernard Shaw)
 
 ***
 
